@@ -1,0 +1,1 @@
+This is just a public repo of wallpapers pulled from mainly from danbooru, it is for personal use as wallpapers for my systems and have no intentions of profiting off of. If you would like your artwork removed please send me an [email](mailto:renl@kaitotlex.systems). Thanks!
